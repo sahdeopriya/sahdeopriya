@@ -1,4 +1,4 @@
-# Hi, I'm Sahdeopriya 👋
+# Hi, I'm Priya Sah Deo 👋
 
 **Data Analyst** passionate about turning data into actionable insights.
 
